@@ -8,7 +8,8 @@
 <p align="center">
 <b>⚡ 𝐒ɪɢᴍᴀ 𝐂ʜᴀᴛ 𝐁ᴏᴛ ⚡</b>
 </p>
-
+𝐌𝐫 𝐇𝐚𝐫𝐬𝐡...🥀
+<img src="https://mallucampaign.in/images/img_1717181754.jpg">
 <h3 align="center">
     ─「 ᴅᴇᴩʟᴏʏ ᴏɴ ʜᴇʀᴏᴋᴜ 」─
 </h3>
